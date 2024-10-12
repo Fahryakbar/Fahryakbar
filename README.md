@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Fahry akbar
-- 👀 I’m interested to learn programming languages
+- 👀 I’m interested to learn programing languages
 - 🌱 I’m currently learning a new programing language.
 - 💞️ I’m looking to collaborate on part of ikea
 - 📫 How to reach me? chat me @ryakbvr on ig
