@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fahryakbar
+- 👋 Hi, I’m Fahry akbar
 - 👀 I’m interested to learn programming languages
 - 🌱 I’m currently learning a new programing language.
 - 💞️ I’m looking to collaborate on part of ikea
